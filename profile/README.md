@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hey, this is us 👋
 
 **Here are some ideas to get you started:**
 
